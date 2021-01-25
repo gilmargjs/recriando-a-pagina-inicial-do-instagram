@@ -1,1 +1,1 @@
-# recriando-a-pagina-iniicial-do-instagram
+# recriando-a-pagina-inicial-do-instagram
